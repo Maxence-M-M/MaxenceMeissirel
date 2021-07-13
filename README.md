@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MaxenceMeissirel
-- 👀 I’m interested in Technologies , Finance and Human behavors
+- 👀 I’m interested in Technologies , Finance and Human behavior
 - 🌱 I’m currently learning Business Analytcis
 - 📫 How to reach me : https://www.linkedin.com/in/maxence-meissirel-marquot/
 
